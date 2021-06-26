@@ -12,5 +12,5 @@ MY Name Is Vian Iam A progammer
 ***SUPPORT ME***
 
 * [Instagram](https://intagram.com/lanzvian)
-* [Twitter](https://twitter.com/@lanzvian)
+* [Twitter](https://twitter.com/LanzVian)
 * [Trakteer](https://trakteer.id/lanzvian)
